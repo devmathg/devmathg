@@ -1,4 +1,4 @@
-😄 <B>EMatheus Monteiro</B><BR><BR>
+😄 <B>Matheus Monteiro</B><BR><BR>
 Iniciante na programação e apaixonado por tecnologia.
 
 "Learning to program increases the mind, helps to think better."
